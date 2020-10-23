@@ -8,6 +8,5 @@ The Zodiac learned the power of magic, and used it to win the war, and create pe
 The planet Acirema always had a substance of great power. 
 The Aciremian people call this unusual power magic, or often mana. Soon, the Zodiac start a system of teaching everyone of the planet Acirema to use mana in schools. 
 That is where you come in...
-
-You learn a magical class, meet some friends, and find the answers of Acirema.
+You learn a magical class, meet some friends, and answer the questions of Acirema.
 Enjoy!
